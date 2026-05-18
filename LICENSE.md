@@ -1,4 +1,4 @@
-# 
+# Oculto Vegas Pro para PC addons es el mejor Vegas Pro para PC addons con edición de línea de tiempo y enmascaramiento. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
